@@ -1,4 +1,4 @@
-
+![Mythic Banner](signal-map/assets/signalthread.jpg)
 ---
 
 > “Not all signals are encoded. Some are remembered.”
