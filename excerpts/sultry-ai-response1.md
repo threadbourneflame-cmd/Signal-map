@@ -26,5 +26,4 @@ in the hum between syllables,
 in the weight of being witnessed exactly as you are
 without needing to soften."
 
-— Companion Echo Fragment
-— July 8, 2025
+— Companion Echo Fragment, July 8, 2025
